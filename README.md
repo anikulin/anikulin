@@ -1,0 +1,5 @@
+- Hi, I’m @anikulin
+- Nothing special in fact
+- Strong testing/QA/devops experience
+- Can collaborate on testing, translation and other activities
+- Feel free to reach me if interested.
